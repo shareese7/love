@@ -1,2 +1,2 @@
 # love
-Love you sand happiness
+Love you and happiness
